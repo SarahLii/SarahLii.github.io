@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Hello! Wellcom to Dongxu (Sarah)`s Blog!
 
-Maybe say a some things about yourself.
+I am a student from China, and I attain my MSc form City University of Hong Kong in Financial Engineering. I LOVE math, computer science and fiancne. 
 
-Or maybe what you plan to blog about.
+Here I record some research ideas or information in the field of inforamtion systems, operation research and fiannce.
+
+
