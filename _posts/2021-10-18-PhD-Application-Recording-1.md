@@ -1,0 +1,4 @@
+##Recording_1 of my PhD application roads
+The application deadline left only a month. I think 🤔 go to a MSc in CMU or other some best schools is the best choice for me now. I definitly eager to enter a PhD program in information systems, or decision making fields. But a good start or platform is worthwhile for two more year efforts. However, I sometimes worry about my parents, there are about fifty’s. If I go to the US for seven years and cost almost all their savings, I am guilty.
+To be honest, age makes me worried too. I am 23.9 years old now. When I finish my PhD degree, it is about 31 and I may lost the ability to giving birth a baby, that would be a great regret in my life.
+Hopefully, everything goes well in the rest of the year.
